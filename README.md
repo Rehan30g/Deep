@@ -27,6 +27,4 @@ Explore the madness yourself! 😈
 - [Experiment 011](http://forbidden.hanzku.xyz/experiment/011)
 - [Experiment 012](http://forbidden.hanzku.xyz/experiment/012)
 
-For future madness, check here: [Experiments 1-20](https://forbidden.hanzku.xyz/experiment/1-20)
-
 Enjoy the ride and remember—**it's all fake**! 😎
