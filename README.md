@@ -1,16 +1,32 @@
 (Dazaan is furry lovers >0<)
-# ⚠️ Disclaimer
+# ⚠️ Chill, This Is Fake 😜
 
-### This Website and Its Contents Are Fictional
+Yo, just so you know, everything on this website is **totally fictional**. The experiments, the stories—**none of it's real**. We're just here for the fun and crazy ideas, not to mess with reality or anything. So, don't take it too seriously, okay?
 
-The content presented on this website, including all journal entries, experiments, and stories, are **entirely fictional** and meant for **entertainment purposes only**. None of the information should be taken seriously or considered as real scientific experiments.
+### What's This About?
+- This site is just a playground for some dark and creative storytelling.
+- Any similarities to real people or events? Pure coincidence, my dude. 😉
 
-## Purpose:
-- This website is a creative outlet to explore dark and fictional themes in a controlled, imaginative setting.
-- Any resemblance to actual persons, living or dead, or real events is purely coincidental.
+### Don't Try This at Home:
+- Seriously, these experiments? **Fiction only.** Don’t even think about doing any of this IRL.
+- It’s all about the **imagination**. We’re not here to encourage any bad behavior, okay? Just have fun!
 
-## Please Note:
-- The experiments and scenarios described here are **not real** and should **never** be attempted or replicated in any form.
-- This content is meant to inspire **imaginative storytelling** and **creative exploration**, not to promote harmful behavior or unethical practices.
+## Check Out the Experiments
+Explore the madness yourself! 😈
 
-Thank you for understanding and enjoy the **fictional** experience!
+- [Experiment 001](http://forbidden.hanzku.xyz/experiment/001)
+- [Experiment 002](http://forbidden.hanzku.xyz/experiment/002)
+- [Experiment 003](http://forbidden.hanzku.xyz/experiment/003)
+- [Experiment 004](http://forbidden.hanzku.xyz/experiment/004)
+- [Experiment 005](http://forbidden.hanzku.xyz/experiment/005)
+- [Experiment 006](http://forbidden.hanzku.xyz/experiment/006)
+- [Experiment 007](http://forbidden.hanzku.xyz/experiment/007)
+- [Experiment 008](http://forbidden.hanzku.xyz/experiment/008)
+- [Experiment 009](http://forbidden.hanzku.xyz/experiment/009)
+- [Experiment 010](http://forbidden.hanzku.xyz/experiment/010)
+- [Experiment 011](http://forbidden.hanzku.xyz/experiment/011)
+- [Experiment 012](http://forbidden.hanzku.xyz/experiment/012)
+
+For future madness, check here: [Experiments 1-20](https://forbidden.hanzku.xyz/experiment/1-20)
+
+Enjoy the ride and remember—**it's all fake**! 😎
